@@ -12,3 +12,5 @@ Sarah saludando
 (Abel) Vamos bien, faltan personas por colaborar.
 
 Hola soy Pablo (o-o)/
+
+Arturo ¯\₍⸍⸌̣ʷ̣̫⸍̣⸌₎/¯
